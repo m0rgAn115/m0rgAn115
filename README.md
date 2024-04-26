@@ -1,5 +1,5 @@
 # 💫 About Me:
-Soy una persona a la cual le apasiona aprender nuevas cosas y tecnologías.<br><br>Siempre busco aprender más y no cerrarme a mi idea o conocimiento.<br><br>La responsabilidad y el compromiso es algo que figura en mí.<br><br>Disfruto trabajar en equipo y la retroalimentación.
+Soy una persona a la cual le apasiona aprender nuevas cosas y tecnologías. <br><br>Disfruto trabajar en equipo y la retroalimentación.
 
 
 ## 🌐 Socials:
